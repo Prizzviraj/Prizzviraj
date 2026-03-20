@@ -1,4 +1,4 @@
-# Prithviraj Singh Chauhan ^0^
+# Prithviraj Singh Chauhan -_-
 B.E. in Computer Science Engineering, Chitkara University<br>
 Class Representative of our Batch
 
