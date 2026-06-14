@@ -1,4 +1,4 @@
-# Prithviraj Singh Chauhan -_-
+# Prithviraj Singh Chauhan
 B.E. in Computer Science Engineering, Chitkara University<br>
 
 
